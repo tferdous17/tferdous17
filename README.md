@@ -1,1 +1,2 @@
-![Darkcore Gif Banner](https://github.com/user-attachments/assets/4392068f-47ea-49e6-b15c-1c76bdf72e95)
+![eb40e5538692eba012f20c4cc3cf52be](https://github.com/user-attachments/assets/d884d9c7-6324-4a11-ae11-e52795b7538e)
+
